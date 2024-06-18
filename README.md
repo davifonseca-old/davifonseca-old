@@ -1,5 +1,5 @@
 
-<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="![WhatsApp Image 2024-06-18 at 02 14 52](https://github.com/davifonseca-old/davifonseca-old/assets/173128077/c1061f33-e0c7-406c-b14b-03583b86ae8d)
+![WhatsApp Image 2024-06-18 at 02 14 52](https://github.com/davifonseca-old/davifonseca-old/assets/173128077/c1061f33-e0c7-406c-b14b-03583b86ae8d)
 
 
 
