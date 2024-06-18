@@ -1,6 +1,6 @@
 
-<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="https://github.com/kyronsatt/kyronsatt/assets/97697928/2c964a53-346e-4bab-b7ff-67ca000100d4" />
-&nbsp;&nbsp;&nbsp;
+<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="![WhatsApp Image 2024-06-18 at 02 14 52](https://github.com/davifonseca-old/davifonseca-old/assets/173128077/c1061f33-e0c7-406c-b14b-03583b86ae8d)
+
 
 
 <p align="center">I ❤️ Bem vindo ao meu perfil.</p>&nbsp;
